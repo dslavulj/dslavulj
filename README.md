@@ -5,6 +5,7 @@ Looking forward for opportunities for cooperation and learning new things.</br>
 </br>
 In free time I seek to try out new things and extend my hobbies list.</br>
 Member of Croatian AI Association and Mensa International.</br>
+Active event manager and technician in youth organization @oko.drustva (Eye of Society)</br>
 </br>
 You can find more about me on my website or LinkedIn:</br>
 https://danijel-slavulj.from.hr/ </br>
